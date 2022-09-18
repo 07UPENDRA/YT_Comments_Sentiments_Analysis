@@ -3,7 +3,7 @@ Since YouTube has Removed the "DISLIKE Counts" for Normal Public/Viewers.😕 <b
 This is a ONE Stop Solution for🤩 <br>
 Knowing Overall Public Sentiments on a particular YT video which is having Hundreds of Thousands of Comments <br>
 And Getting Some Insights like: 🧠
-1. ✅Why this Video is Treding.📈📉
+1. ✅Why this Video is Trending.📈📉
 2. ✅What people Thinks about your video.🤔💭
 3. ✅What are all Positive👍s & Negative👎 Points...... 🗣️Public talking about a perticular Video.
 
